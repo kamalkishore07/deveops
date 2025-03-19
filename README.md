@@ -3,3 +3,4 @@
 060eb](https://github.com/user-attachments/assets/16c4dd02-074f-48cd-8980-c9f169a27476)
 ![WhatsApp Image 2025-03-18 at 10 17 44_3144ad24](https://github.com/user-attachments/assets/a236ed42-06a8-4621-ba4f-49fd94ad253c)
 ![Uploading WhatsApp Image 2025-03-18 at 10.17.44_225060eb.jpg…]()
+[task_3.pdf](https://github.com/user-attachments/files/19348222/task_3.pdf)
